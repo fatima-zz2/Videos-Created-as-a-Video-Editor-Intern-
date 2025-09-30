@@ -1,0 +1,2 @@
+# Videos-Created-as-a-Video-Editor-Intern-
+I have been working with a company naming "Intrazix", an organization providing carpet and inhouse cleaning services. As a Video Editing Intern using Capcut Pro I created ads for social media platforms like FaceBook, Instagram and TikTok. The creation of the required content by the company was using raw clips and AI generated resources.
